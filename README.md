@@ -1,4 +1,3 @@
-# Gransbury-MATH361
 
 igransbu@mail.umw.edu
 
